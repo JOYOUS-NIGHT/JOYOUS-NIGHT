@@ -17,7 +17,7 @@
 </p>
 
 <p>
-  I am not an "IRL," I am simply a Mafioso fictionkin. Don't get it mixed up.
+  I am not an "IRL," I am simply a FICTIONKIN. Don't get it mixed up.
 </p>
 
 <p>
