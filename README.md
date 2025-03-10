@@ -29,5 +29,5 @@
 </h1>
 
 <p>
-  Basic DNI criteria, other than that, you're free to talk to me if you wish. I freely block.
+  Basic DNI criteria, other than that, you're free to talk to me if you wish. I freely block. Also, did I mention human decency?
 </p>
