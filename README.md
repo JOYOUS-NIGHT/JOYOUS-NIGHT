@@ -21,10 +21,6 @@
 </p>
 
 <p>
-  Doublefedora shippers, interact with EXTREME caution. I'm fine with the ship but please don't force it on me.
-</p>
-
-<p>
   Don't even TRY to make any NSFW jokes towards me if I barely know you, I'll just block you..
 </p>
 
