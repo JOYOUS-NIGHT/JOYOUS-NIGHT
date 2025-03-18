@@ -21,10 +21,6 @@
 </p>
 
 <p>
-  Eunoia/The Mafia please interact... (Squire)
-</p>
-
-<p>
   I am not an "IRL," I am simply a FICTIONKIN. Don't get it mixed up.
 </p>
 
