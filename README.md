@@ -17,7 +17,7 @@
 </p>
 
 <p>
-   But please be mindful that I dislike cuddles that go on for too long, as I tend to get restless.
+   But please be mindful that I dislike cuddles that go on for too long as I tend to get restless.
 </p>
 
 <p>
