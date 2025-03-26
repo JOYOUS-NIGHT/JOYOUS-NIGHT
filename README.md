@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <a href=https://rentry.co/blameshed>rentry.</a> ⠀–⠀ <a href=https://mafioso.atabook.org</a> ⠀–⠀ strawpage.
+  <a href=https://rentry.co/blameshed>rentry.</a> ⠀–⠀ <a href=https://mafioso.atabook.org>atabook</a> ⠀–⠀ strawpage.
 </p>
 
 <p align="right">
