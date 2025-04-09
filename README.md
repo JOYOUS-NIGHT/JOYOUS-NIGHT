@@ -13,8 +13,9 @@
 <p align="right">
 graphics by <ins>angeld0llz0!</ins>
 </p>
-<br>
-<div align="center">
-  <video src="https://github.com/user-attachments/assets/c0370c63-87e6-4211-bf1e-174b1a12c5c4" />
-<div/>
 
+<br>
+
+<div align="center">
+  <video src="https://github.com/user-attachments/assets/e6e464dd-35b7-49d1-b83d-625961abc9c6" />
+<div/>
