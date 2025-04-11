@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <a href=https://rentry.co/blameshed>rentry.</a> ⠀–⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀–⠀ <a href=https://en.pronouns.page/@bluudud>prns page.</a>
+  <a href=https://rentry.co/telamcn>rentry.</a> ⠀–⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀–⠀ <a href=https://en.pronouns.page/@bluudud>prns page.</a>
 </p>
 
 <p align="right">
