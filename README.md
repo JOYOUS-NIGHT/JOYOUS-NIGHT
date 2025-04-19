@@ -1,5 +1,5 @@
 <p align="center">
-  I WANT TO SEE YOU SMILE,⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>AND I HAVE JUST THE WAY!</ins>
+  I BUILT MYSELF UP,⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>ONLY TO BE YOU</ins>
 </p>
 
 <br>
