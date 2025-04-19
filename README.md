@@ -1,21 +1,21 @@
 <p align="center">
-  STAY⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>FRIENDS?</ins>
+  I WANT TO SEE YOU SMILE,⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>AND I HAVE JUST THE WAY!</ins>
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/7765e444a3e8864c4b02dc557f796e3d/57d0075b881d8ba5-c3/s540x810/1ff251b9e7d4b181861c8e632bcff1bb2381e2db.pnj"/>
+  <img src="https://64.media.tumblr.com/4af15a2c4e3a4b9fa95c06765b018db3/0daa2c36396b3dac-80/s400x600/0214070adc7aa3f912459de836a70937bcbbfaff.gifv"/>
 </p>
 
 <p align="center">
-  <a href=https://rentry.co/telamcn>rentry.</a> ⠀–⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀–⠀ <a href=https://en.pronouns.page/@bluudud>prns page.</a>
+  <a href=https://rentry.co/bluududes>rentry.</a> ⠀–⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀–⠀ <a href=https://en.pronouns.page/@bluudud>prns page.</a>
 </p>
 
 <p align="right">
-graphics by <ins>angeld0llz0!</ins>
+graphics by <ins>fnaftiism!</ins>
 </p>
 
 <br>
 
 <div align="center">
-  <video src="https://github.com/user-attachments/assets/e6e464dd-35b7-49d1-b83d-625961abc9c6" />
+  <video src="https://github.com/user-attachments/assets/2334a738-a5f3-45d8-bcf7-48f6a4e54142" />
 <div/>
