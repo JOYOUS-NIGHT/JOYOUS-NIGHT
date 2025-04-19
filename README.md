@@ -1,5 +1,5 @@
 <p align="center">
-  I BUILT MYSELF UP,⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>ONLY TO BE YOU</ins>
+  I BUILT MYSELF UP⠀⠀ ⠀ ⠀ ★⠀⠀ ⠀ ⠀ <ins>ONLY TO BE YOU</ins>
 </p>
 
 <br>
