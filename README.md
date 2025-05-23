@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-  <a href=https://rentry.co/blunnies>rentry.</a> ⠀–⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀–⠀ <a href=https://en.pronouns.page/@bluudud>prns page.</a>
+  <a href=https://rentry.co/blunnies>rentry.</a> ⠀–⠀ <a href=https://mafioso.atabook.org>atabook.</a> ⠀–⠀ <a href=https://blunny.straw.page/>strawpage.</a>
 </p>
 
 <br>
