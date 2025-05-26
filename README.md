@@ -25,5 +25,5 @@ graphics by <ins>fnaftiism & dottolonelover4life!</ins>
 <br>
 
 <div align="center">
-  <video src="https://github.com/user-attachments/assets/2334a738-a5f3-45d8-bcf7-48f6a4e54142" />
+  <video src="https://github.com/user-attachments/assets/f4aa4dc3-4567-40ba-9a62-b31bd30ca44b" />
 <div/>
